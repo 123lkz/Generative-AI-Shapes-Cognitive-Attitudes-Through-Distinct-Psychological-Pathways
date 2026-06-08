@@ -1,0 +1,1 @@
+# Generative-AI-Shapes-Cognitive-Attitudes-Through-Distinct-Psychological-Pathways
